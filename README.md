@@ -13,7 +13,7 @@ You'll often find me lost in books (mostly sci-fi) or reading article about ever
 Trying and learning is part of me, being optimist as well, perhaps a bit too much. 
 
 A ***really*** cool quote:
-> When you want to know how things really work, study thel when they're coming apart.</br>
+> When you want to know how things really work, study them when they're coming apart.</br>
 — **William Gibson, _Zero History_**
 
 ## Recent news about me
